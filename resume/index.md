@@ -17,6 +17,10 @@
 
 [Strava](https://www.strava.com/athletes/45053654)
 
-## Some cool photos I have taken:
+## Some cool photos I have taken recently:
+
+![photo of my bike](A957EBD7-A50E-4D7C-89A4-CCD7E9EB9584_1_105_c.jpeg)
+
+![Photo of my car](7AEF6B20-957B-4798-AD34-CE3204890212_1_105_c.jpeg)
 
 
